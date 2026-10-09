@@ -1,1 +1,0 @@
-# Pharmacovigilance-tasks-1
